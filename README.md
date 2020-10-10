@@ -22,7 +22,24 @@ Description.
 ## Lyrics
 
 ```
+what you saying
+what you saying 
+what you saying aaa
 
+- date is wrong
+
+cadets in the back they singing chants
+
+symphonies for the folorn halos broken down 
+
+back to back with a viscous dread 
+in my heart
+drippin' words of wisdom 
+from an old sap aye
+
+
+
+can make it right
 
 ```
 
